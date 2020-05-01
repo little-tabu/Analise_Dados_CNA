@@ -8,8 +8,6 @@ Bruna Larissa Clemente Gomes
 
 Kleber Apolinario Junior
 
-Thales Guilherme De Souza Custodio
-
 
 Fontes
 ---------------------------------------------
